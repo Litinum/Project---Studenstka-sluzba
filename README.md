@@ -1,1 +1,1 @@
-# Project---Studenstka-sluzba
+# Project-Studenstka-sluzba
